@@ -26,13 +26,15 @@
 
 ### _Modo de Preparo_
 
-Derreta o chocolate, coloque os ovos e o restante dos ingredientes, menos a castanha.
+1. Peneire a farinha com o achocolatado e o chocolate em pó e reserve.
+2. Na batedeira, bata os ovos com a margarina, o açúcar cristal e a baunilha até ficar fofo e esbranquiçado.
+3. Desligue a batedeira para acrescentar a mistura peneirada e volte a bater,  aumentando a velocidade até o máximo, pois é uma massa pesada (se  possível, use a pá raquete).
+4. Sem bater, incorpore o xerém de castanha de caju e o chocolate picadinho.
+5. Despeje em fôrma retangular (40 x 30 cm) untada com margarina e enfarinhada.
+6. Leve ao forno alto preaquecido (220 ºC) por cerca de 30 minutos ou até as bordas ficarem crocantes. 
+7. Deixe amornar e sirva cortado em quadrados.
 
-Depois de misturar os ingredientes, coloque as castanhas, e mistura delicadamente.
 
-Unte a forma, e coloque a massa.
-
-Coloque teu forno na temperatura de 180 graus, e asse por 30 minutos.
 
 
 
